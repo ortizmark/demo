@@ -1,1 +1,1 @@
-The License
+The License was changed by a dog
